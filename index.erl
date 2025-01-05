@@ -3,3 +3,4 @@ If you want to become Chief Technology Officier,in the initial period you should
 should know different technologies and other things that is required.Those who are in higher rank,they don't have so much to do but should have
 knowledge so that any unprecedented events can be controlled by them.
 Female business magnates are the inspiration for male business magnates.                                                                              
+
